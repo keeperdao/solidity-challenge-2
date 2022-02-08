@@ -24,7 +24,7 @@ Applicants who join KeeperDAO also receive an additional 15 ROOK!
 
 ### Submission:
 
-Message `susruth♜♜♜#3436` and/or `lapras#8792` on Discord once you have completed the project. Please be prepared to share your repo.
+Message `JZ♜♜♜#9135` on Discord once you have completed the project. Please be prepared to share your repo.
 
 ### References:
 
